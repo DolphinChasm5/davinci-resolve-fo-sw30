@@ -1,4 +1,4 @@
-# 
+# DaVinci Resolve for PC | DaVinci Resolve for Windows instant Transition: audio-sync & 4K-export is the best DaVinci Resolve for PC | DaVinci Resolve for Windows transition,
 
 
 
